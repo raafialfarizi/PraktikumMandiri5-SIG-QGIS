@@ -1,0 +1,1 @@
+# PraktikumMandiri5-SIG-QGIS
